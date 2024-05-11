@@ -1,0 +1,7 @@
+JURNAL 11
+
+NAMA : Aisyah Putri Nuraini
+
+NIM : 607062300033
+
+KELAS : 47-04
